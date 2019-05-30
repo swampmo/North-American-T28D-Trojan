@@ -1,0 +1,2 @@
+# North-American-T28D-Trojan
+The North American Aviation T-28 Trojan is a piston-engined military trainer aircraft used by the United States Air Force and United States Navy beginning in the 1950s. Besides its use as a trainer, the T-28 was successfully employed as a counter-insurgency aircraft, primarily during the Vietnam War. It has continued in civilian use as an aerobatics and Warbird performer.
